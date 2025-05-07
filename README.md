@@ -1,0 +1,2 @@
+# curlyvsstraight
+AAAAAAAAAAAAAAAAAAAAAAAAAA
